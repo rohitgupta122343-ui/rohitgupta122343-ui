@@ -40,8 +40,8 @@
 ---
 
 ## 📫 Connect With Me
-📧 Email: your-email@gmail.com  
-🔗 LinkedIn: add-your-link  
+📧 Email: rohit122343@gmail.com  
+🔗 LinkedIn: https://www.linkedin.com/in/rohit-gupta-75aa64398/
 
 ---
 
